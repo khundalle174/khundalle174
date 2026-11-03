@@ -3,11 +3,11 @@
 
 - 🔭 I’m currently working on **Cashier Web App**
 
-- 👨‍💻 All of my projects are available at [https://khundalle-portfolio.netlify.app](https://khundalle-portfolio.netlify.app)
+- 👨‍💻 All of my projects are available at [Khun Dalle Portfolio](https://khundalle-portfolio.netlify.app)
 
 - 📫 How to reach me **khun.dalle@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/172RotUdg3wiChOQFnuqzLxjshX_TYkkL?usp=sharing]([https://drive.google.com/drive/folders/172RotUdg3wiChOQFnuqzLxjshX_TYkkL?usp=sharing](https://bit.ly/4AdLWaQ))
+- 📄 Know about my experiences [Khun Certificate & CV](https://bit.ly/4AdLWaQ)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **khun.dalle@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/172RotUdg3wiChOQFnuqzLxjshX_TYkkL?usp=sharing](https://drive.google.com/drive/folders/172RotUdg3wiChOQFnuqzLxjshX_TYkkL?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/172RotUdg3wiChOQFnuqzLxjshX_TYkkL?usp=sharing]([https://drive.google.com/drive/folders/172RotUdg3wiChOQFnuqzLxjshX_TYkkL?usp=sharing](https://bit.ly/4AdLWaQ))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
